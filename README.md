@@ -1,4 +1,1 @@
-# MCQs
-# MCQs
-# MCQs
 # mcq
